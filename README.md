@@ -1,5 +1,5 @@
 # Emeralds
-Best Team Ever
+Best Team Ever, no you are not!!! Now you are being attacked by Sapphires!!!!
 Best color ever
 We rock
 
